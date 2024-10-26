@@ -34,3 +34,8 @@
 - 一个人觉得最引以为自豪的事情，往往是那些做起来最艰难的事情。这一点你千万不要怀疑。
 - 无所畏惧（fearless）不是没有恐惧；而是你依然心怀恐惧，但无论如何都决定要跳进去。
 - 人生若有知己相伴固然妙不可言，但那可遇而不可求。真的，也许既不可遇又不可求。可求的只有你自己，你要俯下身去，朝着幽暗深处的自己伸出手去。
+- Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment. — Buddha
+- Keep your face always toward the sunshine—and shadows will fall behind you. — Walt Whitman
+- Success is not final, failure is not fatal: It is the courage to continue that counts. — Winston Churchill
+- Believe you can and you're halfway there. — Theodore Roosevelt
+- Always try to be better, never try to be the best because once you think that you are the best then you have stopped being hungery and there starts your downwall. — Aloukik Joshi
